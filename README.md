@@ -110,6 +110,8 @@ https://www.youtube.com/watch?v=MRN7K_bgerQ&list=PLd3hlSJsX_IkYquVk8TANmuIgSVHz_
 
 https://www.youtube.com/watch?v=G6tobm5YZPg&list=PLd3hlSJsX_Ilqyw513wCDI3zS35YYGsBu
 
+https://www.youtube.com/channel/UCQVCsX1CcZQr0oUMZg6szIQ/playlists
+
 misc
 
 https://www.youtube.com/watch?v=F_vIB3yjxaM&list=PLgnQpQtFTOGR50iIOtO36nK6aNPtVq98C
