@@ -16,6 +16,8 @@ Math
 
 (mit)- https://www.youtube.com/watch?v=j9WZyLZCBzs&list=PLUl4u3cNGP61MdtwGTqZA0MreSaDybji8
 
+(MIT)- https://www.youtube.com/watch?v=nsHbkVMaUGk&list=PLB3sDpSRdrOvI1hYXNsa6Lety7K8FhPpx
+
 
 programming and DATA STRUCTURES AND Algo
 
